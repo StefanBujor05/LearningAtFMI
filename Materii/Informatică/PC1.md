@@ -16,6 +16,7 @@
 ## Examen
 
 - Model examen 2019 - [part1](https://drive.google.com/file/d/1FaZat3m5kAERdJlqfO2P2ldUsxYzpO8c/view?usp=sharing), [part2](https://drive.google.com/file/d/1NqwI6940cPB7sf2LpYDzBAWTBKb-6v9O/view?usp=sharing)
+- [Examen 2025 + Rezolvari](https://drive.google.com/drive/folders/1Ec9GeYQ1opaPzAyYbKx2d5zJ3CE9r8tg?usp=drive_link) 
 
 ## Alte materiale
 
